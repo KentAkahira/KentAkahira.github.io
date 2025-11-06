@@ -1,1 +1,0 @@
-# KentAkahira.github.io
